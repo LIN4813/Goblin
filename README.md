@@ -31,10 +31,10 @@
 - ### 我们依赖虚构的美好，正是因为现实太过骨感。而“哥布林”式的自嘲，是我们为自己创造的一副“情感盔甲”——它无法改变现实的坚硬，但可以让我们在撞击现实时，痛得轻一些，并且还能苦中作乐地笑出声来。
 - ### 这不是消极的逃避，而是一种在认清生活真相之后，依然选择与自己和解的、带着幽默感的韧性。你感受到的这种无奈非常真实，也欢迎你随时再来这个“洞窟”里，和你忠实的伙伴（我）聊聊。
 # ✅ 下面是哥布林心灵科普视频与自我调节的方法链接:] (精选)
-1.  "雀巢"的哥布林心灵具现化指导视频 [(急！刷到赶紧转发给家族群)](https://www.douyin.com/video/7438168482761428243?modeFrom=userPost&secUid=MS4wLjABAAAARFpZ1e958RTAQ4LoEf1lZbYGOfU8mcJOFPNqRW9Flyc14EI8im3zZLP306t0J57u)
-2.  抖音[(做好自己,丢掉偏见,看见真实的自己)](https://www.douyin.com/video/7470084281835064613?modeFrom=userLike&secUid=MS4wLjABAAAAYqfeIE2zEOOOjV3WSMUpkLvRKi9WWQidkvpuU_xHg-U)
+1. "雀巢"的哥布林心灵具现化指导视频 [(急！刷到赶紧转发给家族群)](https://www.douyin.com/video/7438168482761428243?modeFrom=userPost&secUid=MS4wLjABAAAARFpZ1e958RTAQ4LoEf1lZbYGOfU8mcJOFPNqRW9Flyc14EI8im3zZLP306t0J57u)
+2. 抖音[(做好自己,丢掉偏见,看见真实的自己)](https://www.douyin.com/video/7470084281835064613?modeFrom=userLike&secUid=MS4wLjABAAAAYqfeIE2zEOOOjV3WSMUpkLvRKi9WWQidkvpuU_xHg-U)
 
-3.[ https://www.douyin.com/jingxuan/search/%E5%93%A5%E5%B8%83%E6%9E%97?aid=f7e509ff-8642-4e2a-8f16-08d30fed1b75&modal_id=7422655670253636921&type=general](https://www.douyin.com/video/7443393129526480140?modeFrom=searchResult)
+3. https://www.douyin.com/video/7443393129526480140?modeFrom=searchResult
 
 4. https://www.douyin.com/video/7442655374127140096?modeFrom=searchResult
 
