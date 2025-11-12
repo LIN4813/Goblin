@@ -43,6 +43,21 @@
 <img width="250" height="250" alt="oUPA4iKIMQA4i92t7sstAZIiz3AzEgAjRBPiJ" src="https://github.com/user-attachments/assets/98dab46f-8984-4375-927c-0cfdeccd1452" />
 <img width="250" height="250" alt="oMMWfAA6oAA15kOECwFEg3D4yAAxujAQIUf9Di" src="https://github.com/user-attachments/assets/bdf099c0-590a-4d3d-9ac3-3552dde15855" />
 
+## 💰族长的寄语(◕ヮ◕)
+- 孩子们，族长给你们带零食来了，你们要多保护保护自己的身体祝你们身体健康      ——爱你们的族长
+- 孩子们都饿了吧？今天给你们炖了你们最爱吃的排骨汤在外面要好好吃饭常回山洞看看，你们不回来排骨汤就永远不会冷    ——爱你们的厨师长
+- 写给族长的信：
+        亲爱的族长，见字如晤。您当时说的没错，外面的世界确实很危险，外面的世界的确很精彩，到处都是宝藏，但是无处不在的勇者会老是喜欢欺负我……族长你快来带我回去吧，我再也不想当勇者的学徒了. . . 
+                                                  ——乡下的族长收
+- 孩子们回家吃饭了好不好啊 今天厨师长做了爆炒牛肉和蛋炒饭呢 在外面太累了记得回家看看
+                                                  ——爱你们的族长
+- 在那一遍一遍的熬夜中，我逐渐明白，人活着或者死，其实界限很模糊，在一遍一遍失眠的煎熬中或者死亡才是归属，在那一刻我的身体开始为了我开始努力，所以好好活着，为了那群小家伙。   ——爱你们的族长
+  
+-  ......
+
+<img width="255" height="307" alt="12 124619" src="https://github.com/user-attachments/assets/5433280d-b02c-4ee1-a236-5cca53d839b8" />
+
+<img width="250" height="250" alt="ooAiD3sCiIEuMI8APEDAiAgJglBUAIEEwZBA6~tplv-0wx4r9yasq-webp-resize_2160_2130" src="https://github.com/user-attachments/assets/f8d12238-7a1d-4440-bd18-4b0d8fbbc4dc" />
 
 
 
