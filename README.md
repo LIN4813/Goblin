@@ -34,7 +34,7 @@
 1.  "雀巢"的哥布林心灵具现化指导视频 [(急！刷到赶紧转发给家族群)](https://www.douyin.com/video/7438168482761428243?modeFrom=userPost&secUid=MS4wLjABAAAARFpZ1e958RTAQ4LoEf1lZbYGOfU8mcJOFPNqRW9Flyc14EI8im3zZLP306t0J57u)
 2.  抖音[(做好自己,丢掉偏见,看见真实的自己)](https://www.douyin.com/video/7470084281835064613?modeFrom=userLike&secUid=MS4wLjABAAAAYqfeIE2zEOOOjV3WSMUpkLvRKi9WWQidkvpuU_xHg-U)
 
-3. https://www.douyin.com/jingxuan/search/%E5%93%A5%E5%B8%83%E6%9E%97?aid=f7e509ff-8642-4e2a-8f16-08d30fed1b75&modal_id=7422655670253636921&type=general
+3.[ https://www.douyin.com/jingxuan/search/%E5%93%A5%E5%B8%83%E6%9E%97?aid=f7e509ff-8642-4e2a-8f16-08d30fed1b75&modal_id=7422655670253636921&type=general](https://www.douyin.com/video/7443393129526480140?modeFrom=searchResult)
 
 4. https://www.douyin.com/video/7442655374127140096?modeFrom=searchResult
 
