@@ -1,7 +1,7 @@
 # Goblin洞穴
 `哥布林文学是年轻一代在面对社会压力、内卷焦虑和过高社会期望时，所采用的一种独特而幽默的应对策略。它并非彻底的消极，而是一种复杂的智慧：通过在幻想中“降格”自己，来在现实中获得喘息的空间，并在共同的“窘境”中彼此温暖。`
 
-### ⚠️哥布林文学是近年来逐渐兴起的一种文学创作方向其核心在于对传统奇幻叙事中哥布林形象的颠覆与重构,哥布林作为奇幻文学中的边缘种族形象其矮小丑陋的外形以及低等社会的地位恰好构成当代年轻人的身份形象。借用哥布林形象来自嘲处境，边角料的社会处境，恋爱里的无能小丑，你要相信故事的结局还远着，不要总想着`圣女`遇到困难也不要害怕,山洞里永远有族长替你安排妥当,你现在要找回曾经那个意气风发的自己。
+### ⚠️哥布林文学是近年来逐渐兴起的一种文学创作方向其核心在于对传统奇幻叙事中哥布林形象的颠覆与重构，哥布林作为奇幻文学中的边缘种族形象其矮小丑陋的外形以及低等社会的地位恰好构成当代年轻人的身份形象。借用哥布林形象来自嘲处境，边角料的社会处境，恋爱里的无能小丑，你要相信故事的结局还远着，不要总想着`圣女`遇到困难也不要害怕,山洞里永远有族长替你安排妥当,你现在要找回曾经那个意气风发的自己。
 
 - 孩子们在外面就要踏踏实实的干，不要总想着那圣女，她们只会欺负我们的，不要害怕，山洞里面有族长在，累了就回来，家人们都在等你们一起回来吃顿饭，族长炖排骨给你们吃，在冰箱里给你们留着可乐等你们回来喝。
   
@@ -34,8 +34,14 @@
 1.  "雀巢"的哥布林心灵具现化指导视频 [(急！刷到赶紧转发给家族群)](https://www.douyin.com/video/7438168482761428243?modeFrom=userPost&secUid=MS4wLjABAAAARFpZ1e958RTAQ4LoEf1lZbYGOfU8mcJOFPNqRW9Flyc14EI8im3zZLP306t0J57u)
 2.  抖音[(做好自己,丢掉偏见,看见真实的自己)](https://www.douyin.com/video/7470084281835064613?modeFrom=userLike&secUid=MS4wLjABAAAAYqfeIE2zEOOOjV3WSMUpkLvRKi9WWQidkvpuU_xHg-U)
 
-3.https://www.douyin.com/jingxuan/search/%E5%93%A5%E5%B8%83%E6%9E%97?aid=f7e509ff-8642-4e2a-8f16-08d30fed1b75&modal_id=7422655670253636921&type=general
+3. https://www.douyin.com/jingxuan/search/%E5%93%A5%E5%B8%83%E6%9E%97?aid=f7e509ff-8642-4e2a-8f16-08d30fed1b75&modal_id=7422655670253636921&type=general
 
+4. https://www.douyin.com/video/7442655374127140096?modeFrom=searchResult
+
+
+<img width="250" height="250" alt="o0AWffVRDQHciLr3BlFAEVjFcEfsNABIEMAkly" src="https://github.com/user-attachments/assets/77ba5efb-d2d5-4828-a3ca-47d7bfd23ddd" />
+<img width="250" height="250" alt="oUPA4iKIMQA4i92t7sstAZIiz3AzEgAjRBPiJ" src="https://github.com/user-attachments/assets/98dab46f-8984-4375-927c-0cfdeccd1452" />
+<img width="250" height="250" alt="oMMWfAA6oAA15kOECwFEg3D4yAAxujAQIUf9Di" src="https://github.com/user-attachments/assets/bdf099c0-590a-4d3d-9ac3-3552dde15855" />
 
 
 
